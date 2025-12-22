@@ -1,1 +1,1 @@
-# haynes_links-and-images-assignment
+# haynes_JTC_assignments
